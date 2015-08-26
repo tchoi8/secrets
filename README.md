@@ -19,6 +19,18 @@
 </br>
 </br> 
 
+### 4 GB = $40 / Limited edition of 64 
+### 8 GB = $80 / Limited edition of 32
+### 16 GB = $160 / Limited edition of 16
+### 32 GB = $320 / Limited edition of 8
+### 64 GB = $640 / Limited edition of 4 
+
+
+</br>
+</br>
+</br> 
+
+
 ###Knockdown Center, 52-19 Flushing Ave, Maspeth, NY 11378, in September 12th Saturday 12PM ~ 8PM. 
 </br>
 </br>
